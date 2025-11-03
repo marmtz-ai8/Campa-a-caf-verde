@@ -1,2 +1,3 @@
-# campa-a-te-verde
-Materiales de la campaña digital de Té Verde para la materia de Manejo de Medios.
+Título: ¡Café Verde, sabor natural que despierta tus sentidos!
+Copy: Empieza tus mañanas con energía y conciencia. 🌱☕
+Hashtags: #CaféVerde #NaturalEsMejor #DespiertaConSabor
